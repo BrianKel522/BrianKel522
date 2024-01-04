@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BrianKel522
+- 👋 Hi, I’m @briankel522
 - 👀 I’m interested in your mom
 - 🌱 I’m currently learning how to impress your mom
 - 💞️ I’m looking to collaborate on a relationship. im collaborating with your mom.
